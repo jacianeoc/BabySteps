@@ -24,3 +24,4 @@ Não poderia faltar a sua sorte na linguagem, deposite [aqui](HelloWorld) seu He
 
 Com isso, chegamos ao fim da sua primeira contribuição, que cada uma possa contribuir como puder, mas que sejamos sempre símbolo de acolhimento. 
 Seja muito bem vinda a nossa comunidade no GitHub ❤️
+dfdfgdffdvendo um negocio
